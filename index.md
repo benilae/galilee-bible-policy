@@ -1,4 +1,4 @@
-# Privacy Policy for Galilee Bible
+# Privacy Policy for Galilee Bible Study
 **Last updated:** 04-June-2026
 
 Galilee Bible is committed to protecting your privacy. This Privacy Policy explains how we collect, use, and safeguard your information when you use our mobile application.
